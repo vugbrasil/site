@@ -14,3 +14,11 @@
 >> 
 
 >> Parceiro pode participar mas não pode "VENDER"
+
+
+>> Próximos passos: 
+
+>> Enviar os materiais que já temos
+>> Michele Murdok vai entrar em contato (Veeam Champion)
+>> Identificar champions no BR
+>> 
